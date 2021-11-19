@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-🔭 __I’m currently working on__ _an ecommerce project for my 401 class. _ 
+🔭 I’m currently working on an ecommerce project for my 401 class. 
 <br/>
 🌱 I’m currently learning Razor Pages, MVC, SendGrid, registering users, and logging in users  
 <br/>
