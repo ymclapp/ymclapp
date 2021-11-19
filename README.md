@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 📫 How to reach me: ymclapp@yahoo.com is the best way, but feel free to message me through LinkedIn too
 <br/>
 <! ---- 😄 Pronouns: ...---!>
-###  ⚡ Fun facts: 
+⚡ Fun facts: 
 <br/>
   :star:At the height of his band's popularity, I walked through Jon Bon Jovi's high school.  
 <br/>
