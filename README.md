@@ -20,7 +20,7 @@ Here are some ideas to get you started:
 <br/>
   :star:At the height of his band's popularity, I walked through Jon Bon Jovi's high school.  
 <br/>
-  :star:I love music, so most every month or every other month, my partner and I attend "concerts" at local venues or within a 4 hour radius.  
+  :star:I love music, so most every month or every other month, my fiance and I attend "concerts" at local venues or within a 4 hour radius.  
 <br/>
   :star:I have now seen the Eagles in concert 5 times in the past 5 years. 
 <br/>
